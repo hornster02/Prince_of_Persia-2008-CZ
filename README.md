@@ -1,6 +1,6 @@
 STEAM (2024-03) - na GOG verzi nefunguje
 <br/>
-Včetně CZ dabingu. Velikost 832MB https://drive.google.com/drive/folders/1WrOQtS_Cum0OFn4ZGc8mNtjpUO-AQyfP
+Velikost 832MB https://drive.google.com/drive/folders/1WrOQtS_Cum0OFn4ZGc8mNtjpUO-AQyfP
 
 Postup
 <br/>
